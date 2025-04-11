@@ -1,2 +1,2 @@
 # RDQKL
-Coming Soon！
+Coming soon！
